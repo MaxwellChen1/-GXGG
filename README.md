@@ -6,16 +6,6 @@
 
 
 
-皇家嘎母狗出版社
-
-The Royal Gamugore Press, New York · Lhasa · Yiwu
-
-
-
-2022 年 3 月，西藏
-
-March 2022, Tibet
-
 
 
 ## 前言
