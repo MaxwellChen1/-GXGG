@@ -30,7 +30,7 @@
 
 ### 癌姥 *
 
-Lady Gaga 的外祖母患有癌症，但同时 Lady Gaga 的粉丝一直在 Taylor Swift 的母亲曾经患有癌症。
+Lady Gaga 的外祖母患有癌症，但同时 Lady Gaga 的粉丝一直在辱骂 Taylor Swift 的母亲 (曾经患有癌症)。
 
 ### 奥斯卡秒了 *
 
