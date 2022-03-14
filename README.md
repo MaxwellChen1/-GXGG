@@ -13,7 +13,7 @@
 
 和被广泛使用的淋语相比，使用嘎语的多为欧美粉丝，尤其是欧美女歌手粉丝。另外嘎语尚未被无害化，嘎语使用者和 Lady Gaga 黑粉基本是划等号的。与淋语一样，嘎语包含人身攻击、性暗示等其他侮辱性不雅词汇。在各大社交平台 (主要是微博，百度贴吧和哔哩哔哩) 应谨慎使用。
 
-![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery//Fadga-Flop.GIF?raw=true)
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Suck-P3nis.GIF?raw=true)
 
 ## 嘎语大词典
 
