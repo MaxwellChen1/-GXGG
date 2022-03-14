@@ -6,6 +6,7 @@
 
 
 
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Surprised.png?raw=true)
 
 
 ## 前言
@@ -47,6 +48,8 @@ Lady Gaga 在 2020 年美国大选期间公开为拜登站台，同期被曝出�
 出自于 Lady Gaga 2016 年的纪录片《嘎嘎小姐：五尺二寸》中，嘎嘎小姐身患多种疾病，其中一种为纤维肌痛病。纪录片中的一幕展示了嘎嘎小姐发病时的画面，嘎嘎小姐说：
 
 *“啊，我不行了！我感觉我右半边身体都在疼，我整张脸也在疼！呜呜呜，感觉好像有人用绳子栓着我的身体用力扯。啊好痛好痛！谁来救救我？我是不是看起来很可悲。呜呜呜，我真的好疼啊，我还没有怀孕呢，我的粉丝怎么办啊！呜呜呜好疼！”*
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Pain.jpeg?raw=true)
 
 ### 搬床
 
@@ -116,6 +119,9 @@ Lady Gaga 的粉丝有时被称作老鼠，因为它们总是在各个艺人的�
 
 来自于一张 GIF 动图。图中 Lady Gaga 在保安的包围下离开酒店，这时迎面走来了一位要签名的粉丝。保安随即殴打此人并制服，Lady Gaga 本人则头也不回的离开酒店。
 
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Beat-Fan.GIF?raw=true)
+
 ### 达姐 / 达夫人 *
 
 Lady Gaga 在 2016 年会见达赖喇嘛后的黑称，详细信息见 “三独艺人”
@@ -159,6 +165,9 @@ Lady Gaga 的专辑《The Fame》和《The Fame Monster》到底是几张专辑�
 ### 非法下载
 
 Lady Gaga 的专辑《Chromatica》的单曲《Stupid Love》早在发布几个月前就被泄漏发布在互联网上。她的一名粉丝大放厥词称这首单曲有超过 200 万次的非法下载。
+
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Illegal-Download.JPG?raw=true)
 
 ### 肥皂姐
 
@@ -308,9 +317,13 @@ Lady Gaga 的一名中国粉丝在 2016 年会见达赖事件后在纽约见到�
 
 Lady Gaga 在 2011 年的采访中称自己喜欢 “60 岁以上的老头”，事实证明她说的话一点也不假，Lady Gaga 的前未婚夫 Christian Carino 和美国总统拜登的儿子 Hunter Biden 都已经 50 多岁了，虽然依然没达到 60 岁的标准，但是对于 35 岁的她来说还是太老了点。
 
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Old-Men-Exes.PNG?raw=true)
+
 ### 林天鹏 *
 
 Lady Gaga 的一名粉丝，在浙江义乌经营一家皮具商行 (即 “皮具天后” 的由来)，已婚并育有一女。因长期在贴吧开多个小号侮辱其他欧美艺人并发表大批令人瞠目结舌的言论，引起众怒并被人肉。个人信息及社交账号被扒出后便开始自导自演。用两张 SIM 卡自己给自己发短信，但由于他只有一台手机所以露馅。此外林天鹏被扒出是男同性恋，并曾经在外面背着老婆孩子做 0。因此得名 “骗婚天后”。贴吧网友随即将其作为恶搞素材，将林天鹏的照片 PS 到 Lady Gaga 或其他艺人的照片和音乐视频中。在嘎文化中的地位类似于周阴婷。
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Lynn-Tian-Peng.GIF?raw=true)
 
 ### 灵巧女王
 
@@ -323,8 +336,6 @@ Lady Gaga 的粉丝曾经发表言论称 Lady Gaga 有 “灵巧的事业”。�
 ### 流行病天后
 
 见 “一身五病”
-
-
 
 ## M
 
@@ -381,6 +392,8 @@ Lady Gaga 出道早期靠各种夸张的造型吸引人眼球，例如著名的 
 
 在 2011 年日本地震海啸灾难期间，Lady Gaga 曾发售了一批手环，这些手环以 5 美元的价格售出。她表示售卖所得将作为善款捐出。但有律师质疑这些善款大部分都进入了她自己的口袋里。另外，央视新闻也曾经多次报道过此事，目前可以考证的报道视频有 6 个以上。之后 Lady Gaga 一次参加日本综艺节目，被主次人问道是否有侵吞善款，Lady Gaga 不假思索的举起了印有 “YES” 的牌子，Lady Gaga 试图解释但却越描越黑。变体有 “勤囤衫款” 等。
 
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/CCTV-Report-Charity-Fraud.JPG?raw=true)
+
 ## R
 
 ### 人寿保险
@@ -401,6 +414,10 @@ Lady Gaga 先后与三个男人订婚，又三次取消婚约。
 
 Lady Gaga 支持港独、台独、藏独。在 2019 年的香港暴乱期间，Lady Gaga 关注了支持港独的社交媒体账号。而在她更早的台湾演唱会上，她称 “你们的国家很美”，还自备了青天白日旗；有眼尖的网友发现，她 2018 年主演的电影《一个明星的诞生》开头的一幕出现了代表台独的蓝绿色鲸鱼旗帜。而在 2016 年，她与达赖喇嘛合影并发布在了社交媒体上。有大批中国粉丝奉劝她尽快删除照片，可她非但没有删除照片反而在几天后发布了另一张合照，并配字 “Be kind to your enemies” 善待你的敌人。
 
+我嘎与达赖的视频：https://www.youtube.com/watch?v=IrYpqQQ6_1M
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Sandu-Tibet.jpeg?raw=true)
+
 ### 三圣母
 
 Lady Gaga 支持三独、做小三、跟人 3P，因此称她为 “三圣母”
@@ -411,7 +428,7 @@ Lady Gaga 支持三独、做小三、跟人 3P，因此称她为 “三圣母”
 
 ### 首谈性侵 *
 
-Lady Gaga 从 2014 年开始每年都会谈论自己遭遇性侵的经历，到目前已经连续 8 年。每一次 “首谈” 均会引起国内外媒体的争相报道。由于媒体报道此事时总会加上 “首次” 之类的字样，并且她自己也总是重复自己已经 “好久没有跟别人说这件事了”。因此被叫做 “首谈性侵”。有趣的是，这八年的版本每个都不一样。例如最早的版本称自己 19 岁时被一个年长的男性强奸，后来又称自己因强奸患上了 PTSD (Post Traumatic Stress Disorder 创伤后应激障碍)。但是迄今为止 Lady Gaga 仍然称自己不愿公布强奸犯的名字。
+Lady Gaga 从 2014 年开始每年都会谈论自己遭遇性侵的经历，到目前已经连续 8 年。每一次 “首谈” 均会引起国内外媒体的争相报道。由于媒体报道此事时总会加上 “首次” 之类的字样，并且她自己也总是重复自己已经 “好久没有跟别人说这件事了”。因此被叫做 “首谈性侵”。有趣的是，这八年的版本每个都不一样。例如最早的版本称自己 19 岁时被一个年长的男性强奸，后来又称自己因强奸患上了 PTSD (Post Traumatic Stress Disorder 创伤后应激障碍)。但是迄今为止 Lady Gaga 仍然称自己不愿公布强奸犯的名字。要获取更多信息，请移步 ASSAULT.md
 
 Lady Gaga 本人早期称 “可能因为我穿着的方式，以及我身上散发出来的那种诱惑，我觉得在某种程度上，可能是因为这两个原因导致了那件事的发生，这部分是我的错。”
 
@@ -478,6 +495,8 @@ Lady Gaga 的专辑《Chromatica》的首支单曲《Stupid Love》表现不尽�
 ### 舞台漏阴 *
 
 Lady Gaga 常在舞台上做下流动作，她曾经多次在舞台上做出行房事的姿势，甚至演唱会上扒开衣服向观众展示自己的隐私部位。除此之外他也在公共场所裸露过乳房等部位。由于此词易被和谐，因此有 “五台露营 / WTLY” 的隐晦写法。
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Exhibitionism.JPG?raw=true)
 
 ## X
 
@@ -593,11 +612,14 @@ Lady Gaga 为了拍摄单曲《G.U.Y.》的音乐视频，在干旱的加州浪�
 
 ### 0.09
 
-来自于一张截图，图中 Lady Gaga 的的单曲 “Applause” 在亚马逊上以 0.09 元的价格销售，售价仅为正常价格的十分之一。但是由于无法找到外媒的相关报道，真实度存疑。
+来自于一张截图，图中 Lady Gaga 的的单曲 “Applause” 在亚马逊上以 0.09 元的价格销售，售价仅为正常价格的十分之一。但是由于无法找到外媒的相关报道因此真实性无从考证。
 
 ### 0.99 *
 
 Lady Gaga 的专辑《Born This Way》曾经在亚马逊上以 0.99 美元的超低价格大甩卖。用来形容类似的行为或价值低的事物，也可直接替换语句中的数字，用法同淋语中的 “130”。
+
+
+![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Discount.JPG?raw=true)
 
 ### 3 分，同性恋们麻烦不要再吹了
 
