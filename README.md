@@ -2,9 +2,6 @@
 
 本项目旨在为嘎文化提供备份，包括嘎语词汇和图片，为新入圈的姐妹提供参考
 
-
-![alt text](https://github.com/mxwlch03/Gongxigaga/blob/main/Gallery/Expressions.JPG?raw=true)
-
 ## 关于嘎语
 
 常年上网冲浪的各位应该很熟悉淋文化：一种包含蔡依林采访语录、恶搞图片的亚文化
